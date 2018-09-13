@@ -1,3 +1,3 @@
 Wang Tei Jan
 20384323
-[captured_screen.jpg](https://postimg.cc/image/vid2ceigh/)
+<img src="https://s8.postimg.cc/47rr4hfjp/captured_screen.jpg">
